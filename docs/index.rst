@@ -1,5 +1,5 @@
 ===========================================
-How to Sign Up for a Fubo TV Account
+How to Sign Up for a Fubo TV Account Easily?
 ===========================================
 
 
